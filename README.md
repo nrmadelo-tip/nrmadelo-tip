@@ -1,4 +1,4 @@
-Nino Renato L. Madelo
+Nino Renato L. Madelo /n
 3rd Year Level BSCPE
 Video Games, Dance
 qnrlmadelo@tip.edu.ph
